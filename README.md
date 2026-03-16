@@ -1,4 +1,4 @@
-![Airbrush-IMAGE-ENHANCER-1773599559139-1773599559139](https://github.com/user-attachments/assets/7d8b90e7-6c7d-4a74-801b-24d6c13313d5)# wallpapers_4k
+# wallpapers_4k
 Wallpaper4k
 
 этот репозиторий содержит файлы с расширением .gif которые могут не встать на обои на Windiws 📁 О репозитории
