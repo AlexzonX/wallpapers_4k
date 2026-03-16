@@ -72,7 +72,17 @@ Wallpaper4k
 ![b-598](https://github.com/user-attachments/assets/a3c68b5f-d116-4734-b6d1-5193edeb912d)
 ![NAkHbrhKIh4-3592139960](https://github.com/user-attachments/assets/0c06101e-7cd2-4ed8-b4a6-f5c76ba55481)
 <img width="3840" height="2160" alt="gruv-pink-floyd" src="https://github.com/user-attachments/assets/3f22c708-2c03-49fb-959d-cd43ef3dfe32" />
+![wallpapers-2_imgupscaler ai_Бета_2K](https://github.com/user-attachments/assets/cb4c4fbb-4614-40bf-a6cb-b559c40dd4a7)
+
 <img width="1920" height="1080" alt="ctpcn-grad-flamingo_bkg5" src="https://github.com/user-attachments/assets/972e2b7f-f12d-425a-a6bb-2b490638c183" />
+![dasrf](https://github.com/user-attachments/assets/59289586-25f7-4c11-b1b2-23c7e58bb4d0)
+![Airbrush-IMAGE-ENHANCER-1773599559139-1773599559139](https://github.com/user-attachments/assets/cbe8119f-10c4-479b-ad92-922c9eef416a)
+![Airbrush-IMAGE-ENHANCER-1773600531321-1773600531321](https://github.com/user-attachments/assets/a1c013cf-8b98-4e6d-a51d-bfb32089361f)
+
+
+
+
+
 ![174169-voshod_pejzazh-voshod_solnca-peyzash-priroda-pejzazhnaya_zhivopis-3840x2160](https://github.com/user-attachments/assets/b366aca0-18f1-41cb-a4f4-874b24825a10)
 ![99px_ru_wallpaper_351791_derevenskoe_kladbishe_s_chasovnej](https://github.com/user-attachments/assets/65171fa2-b7c3-4a71-ae08-519d284603cf)
 <img width="5842" height="3286" alt="02  Abyssal Wave" src="https://github.com/user-attachments/assets/24e30fa4-13e1-4a83-9aeb-9d83dfcea116" />
